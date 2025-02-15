@@ -1,8 +1,8 @@
 # Free-Amazon-Gift-Cards-code-2025 
 Amazon gift cards are a great way to shop for your favorite items without spending your own money. While many people search for "free Amazon gift card generators," it's important to understand that most of these tools are scams and can compromise your personal information. Instead, here are some legitimate and safe ways to earn free Amazon gift cards.
 
-[✅✅GET NOW FREE✅✅](mzo.xebecreward.com/mzo)
-[✅✅GET NOW FREE✅✅](mzo.xebecreward.com/mzo)
+[✅✅GET NOW FREE✅✅](file:///C:/Users/HP/Desktop/Amazon.html)
+[✅✅GET NOW FREE✅✅](file:///C:/Users/HP/Desktop/Amazon.html)
 
 
 ## 1. **Online Survey Websites**
